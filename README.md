@@ -1,4 +1,4 @@
-# [Név]
+# Halász Gábor
 
 
 ## Hogyan kezdj neki?
