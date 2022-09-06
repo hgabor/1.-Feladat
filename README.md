@@ -1,4 +1,4 @@
-# Halász Gábor
+# A saját nevem
 
 
 ## Hogyan kezdj neki?
